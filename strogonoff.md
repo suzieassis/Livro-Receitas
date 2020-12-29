@@ -12,9 +12,8 @@
   Em uma panela, adicione o óleo, a carne, a cebola, os tomates, o caldo de carne e deixe cozinhar por 20 minutos.
 
 ####Modo de Preparo
-- Acrescente o ketchup e o champignon e deixe cozinhar até obter um molho consistente e cremoso.
-
-- Desligue o fogo e acrescente o creme de leite sem soro.
+-  Acrescente o ketchup e o champignon e deixe cozinhar até obter um molho consistente e cremoso
+Desligue o fogo e acrescente o creme de leite sem soro.
 
 - Mexa até incorporar o molho ao creme.
 
